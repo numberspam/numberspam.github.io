@@ -1,8 +1,7 @@
-## Hi, i'm emma
+## 🐱
 
 
-Empty for now...
-
+Hi, i'm emma. I don't know what else to put here right now.
 
 
 
